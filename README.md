@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://imgflip.com/gif/a25ozq"  />
+<div class="tenor-gif-embed" data-postid="16773569997165192004" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/i-just-lost-my-dog-white-dog-dog-twerk-i-just-lost-my-dawg-gif-16773569997165192004">I Just Lost My Dog White Dog GIF</a>from <a href="https://tenor.com/search/i+just+lost+my+dog-gifs">I Just Lost My Dog GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 ###
 
