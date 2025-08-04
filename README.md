@@ -64,6 +64,14 @@
 
 ###
 
+<img align="left" height="350" src="https://media.tenor.com/adLokhFRSiQAAAAm/kasper-dancing.webp"  />
+
+###
+
+<img align="left" height="350" src="https://media.tenor.com/adLokhFRSiQAAAAm/kasper-dancing.webp"  />
+
+###
+
 <br clear="both">
 
 <img src="https://raw.githubusercontent.com/arthurmedeiros10/arthurmedeiros10/output/snake.svg" alt="Snake animation" />
